@@ -13,7 +13,7 @@ Page is still under construction. Will keep updating it as and when possible. Ke
 
 Feedback
 --------
-If you have any feedback, please reach out to me at ankitagarwalpro@gmail.com
+If you have any feedback, please reach out to me at greatest94@outlook.com
 
 Contributing
 -------------
